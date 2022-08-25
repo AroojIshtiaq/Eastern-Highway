@@ -1,0 +1,2 @@
+# Eastern-Highway
+Eastern Highway Company is a ISO 9001:2015 Certified Company by ALCUMUS ISOQAR accredited by UKAS, the UK’s national accreditation body. The production and quality control departments are fully equipped with experts and qualified professionals, manufacturing procedures are carried out in strict conformance of ISO 9001:2015 standards. This achieves our total commitment to Quality Policy.
